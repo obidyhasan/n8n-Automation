@@ -1,1 +1,1 @@
-Last updated: 1000 31December
+Last updated: 1000 01January
